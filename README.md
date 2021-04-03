@@ -6,6 +6,8 @@ Ok so someone made you to install and run this... LMFAO Just look how dumb you'r
 
 <img src="https://telegra.ph/file/97a531cf3ae813711d52f.png">
 
+# Check out what the hell it can do lol
+[![IMAGE ALT TEXT HERE](https://telegra.ph/file/1aa7a8d2078e72555e2f7.jpg)](https://youtu.be/F3CE2qKj9twE)
 
 # HOW I DID IT?
 
